@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rishu2421
 - 👀 I’m interested in Creating new Apps,
-- 🌱 I’m currently learning Web technology and Mobile technology,
+- 🌱 I’m currently working in IRCTC,
 - 💞️ I’m looking to collaborate on exciting idea,
 - 📫Contact me on : dubeyrishabh2421@gmail.com
 
